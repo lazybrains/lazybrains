@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lazybrains
+- 👀 I’m interested in big bucks
+- 🌱 I’m currently learning computer science
+- 💞️ I’m looking to collaborate on some gadgets
+- 📫 Find me at tiktok.
